@@ -22,4 +22,4 @@ Ref link to ezil - https://ezil.me/?p=2969 (it will be huge thanks me)
 If you want to support the project or me don't hesitate to donate.
 
 ZIL - zil15szeu50ed7lnztxec8hjz4rtrdmczvdzh2wmm0
-ETC - 
+RXD - 13QCij4L5aaHbgx6MqugNijtqCLARuWeGv
